@@ -1,1 +1,1 @@
- ### ife and work are the same importance
+life and work are the same importance
