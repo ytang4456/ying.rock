@@ -1,0 +1,1 @@
+#life and work are the same importance
